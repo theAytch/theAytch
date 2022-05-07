@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aytch
+- 👀 I’m interested in Right now in learning pythong after get into graphic design and animation 
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me this is my number +971523569660
